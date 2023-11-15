@@ -1,5 +1,4 @@
 ## Bem-vindo(a), Saudações eu sou o Kauã 🎓
-- 👨🏾‍🎓 Atualmente faço faculdade de Análise e Desenvolvimento de Sistemas na UniFECAF 
 - 🔍 Procuro trabalhar na área de Analista e Desenvolvedor
 - ✉️ Email: khloliveira05@gmail.com
 
